@@ -1,0 +1,2 @@
+# Deli
+I created a new gmail account again, an again because I forgot my password more than 5 times. So when I tried to login and reset my password Google asked me for more info so I filled the recovery and still they said that im not the owner of account. I thiught to myself that someone git hokd on my password. I also sent the picture ,ID card driver license to facebook. still not the iwner. I have been so angry frustrated because of my documents such as resume and picures. please help
